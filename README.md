@@ -1,1 +1,1 @@
-# hotnay
+# hotnay aata kay kru
